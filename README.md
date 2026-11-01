@@ -2,7 +2,27 @@
 
 ### if you want a skin thats not in here dm me on discord: @Ryoyaamada
 ### if a skin is not on here its prob wip or i just havent put it in here yet
--------------------------------------------------
+
+
+# CURRENTLY USING: Edits of [This Skin](https://osu.ppy.sh/community/forums/topics/2259389?n=1)
+
+# [Tendou Kei NM (Ieth)](https://ryoyamadaskins.s-ul.eu/mcLoAfAV)
+![](https://ryoyamadaskins.s-ul.eu/qTWwouVo)
+
+# [Tendou Kei NM (Monko)](https://ryoyamadaskins.s-ul.eu/GV9aWK0x)
+![](https://ryoyamadaskins.s-ul.eu/bArwMryE)
+
+# [Tendou Kei HD (azerino)](https://ryoyamadaskins.s-ul.eu/PJsfzDa3)
+![](https://ryoyamadaskins.s-ul.eu/rv22gMgx)
+
+# [Tendou Kei DT (rafis)](https://ryoyamadaskins.s-ul.eu/ynEKTqYh)
+![](https://ryoyamadaskins.s-ul.eu/rDnHF8Fh)
+
+
+
+# OLDER SKINS
+
+
 # [Black Souls Rektyedit](https://ryoyamadaskins.s-ul.eu/HliFam0X)
 ![](https://osu.ppy.sh/ss/19920723/1f3a)
 
