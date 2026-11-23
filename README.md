@@ -1,10 +1,29 @@
 # skins and stuff yay
 
-### if you want a skin thats not in here dm me on discord: @Ryoyaamada
+### if you want a skin thats not in here dm me on discord: @Remiyuu
 ### if a skin is not on here its prob wip or i just havent put it in here yet
+### also 99% of these are just rafis, aristia, and monko edits
 
 
-# CURRENTLY USING: Edits of [This Skin](https://osu.ppy.sh/community/forums/topics/2259389?n=1)
+# CURRENTLY USING:
+
+# [Rena NM](https://files.catbox.moe/hxfc2o.osk)
+![](https://osu.ppy.sh/ss/20105749/08d8)
+
+# [Rena NM no trail](https://files.catbox.moe/0eurk6.osk)
+![](https://osu.ppy.sh/ss/20105750/9cd4)
+
+# [Rena DT](https://files.catbox.moe/n8ysmy.osk)
+![](https://osu.ppy.sh/ss/20105752/8f65)
+
+# [splitty edit (for low ar reading)](https://files.catbox.moe/p165u6.osk)
+![](https://osu.ppy.sh/ss/20105753/859e)
+
+
+# OLDER SKINS (not really using)
+
+# [Tendou Kei DT (rafis)](https://ryoyamadaskins.s-ul.eu/ynEKTqYh)
+![](https://ryoyamadaskins.s-ul.eu/rDnHF8Fh)
 
 # [Tendou Kei NM (Ieth)](https://ryoyamadaskins.s-ul.eu/mcLoAfAV)
 ![](https://ryoyamadaskins.s-ul.eu/qTWwouVo)
@@ -14,14 +33,6 @@
 
 # [Tendou Kei HD (azerino)](https://ryoyamadaskins.s-ul.eu/PJsfzDa3)
 ![](https://ryoyamadaskins.s-ul.eu/rv22gMgx)
-
-# [Tendou Kei DT (rafis)](https://ryoyamadaskins.s-ul.eu/ynEKTqYh)
-![](https://ryoyamadaskins.s-ul.eu/rDnHF8Fh)
-
-
-
-# OLDER SKINS
-
 
 # [Black Souls Rektyedit](https://ryoyamadaskins.s-ul.eu/HliFam0X)
 ![](https://osu.ppy.sh/ss/19920723/1f3a)
