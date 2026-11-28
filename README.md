@@ -7,8 +7,8 @@
 
 # CURRENTLY USING:
 
-# [Rena NM](https://files.catbox.moe/hxfc2o.osk)
-![](https://osu.ppy.sh/ss/20105749/08d8)
+# [Rena NM](https://files.catbox.moe/3p9j3g.osk)
+![](https://files.catbox.moe/105pwa.jpg)
 
 # [Rena NM no trail](https://files.catbox.moe/0eurk6.osk)
 ![](https://osu.ppy.sh/ss/20105750/9cd4)
